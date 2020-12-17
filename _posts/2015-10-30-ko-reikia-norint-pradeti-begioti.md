@@ -24,11 +24,11 @@ Bėgimo batelius reikia rinktis atsakingai, kadangi jie yra pats svarbiausias b�
 
 Perkant batelius, rekomenduojama įsigyti ir keletą porų sportinių kojinių. Iš bėdos pradžioje gali tikti ir paprastos, tačiau sportinės kojinės pagamintos taip, kad laikytų pėdą sausą, kur reikia aptemptų, prilaikytų, nenutrintų.
 
-Bėgiojantiems ilgas distancijas (15-17 km ir daugiau), laikui bėgant patartina įsigyti kompresines kojimnes iki kelių ar blauzdines. Jos prilaiko raumenis, padeda iš raumenų ištekėti veniniam kraujui, skatina limfos apytaką. Taip sumažėja kojų atmušimo tikimybė, lengviau laikoma tiesi nugara, pasiekiama geresnių rezultatų.
+Bėgiojantiems ilgas distancijas (15-17 km ir daugiau), laikui bėgant patartina įsigyti kompresines kojines iki kelių ar blauzdines. Jos prilaiko raumenis, padeda iš raumenų ištekėti veniniam kraujui, skatina limfos apytaką. Taip sumažėja kojų atmušimo tikimybė, lengviau laikoma tiesi nugara, pasiekiama geresnių rezultatų.
 
 ### Sportinė liemenėle
 
-Moterims ypaę svarbu turėti specialią liemenėlę sportui, kadangi ji ne tik perneša drėgmę tolyn nuo kūno, bet ir apspaudia krūtinę, saugo nuo patempimo traumų, neleidžia užsistovėti limfai. Moterims tai yra antras pirkinys po batelių. Puikias liemenėles sportui galima surasti [anita.lt internetinėje parduotuvėje](http://anita.lt/#!/Liemen%C4%97l%C4%97s/c/2484045/offset=0&sort=normal). DISKLEIMERIS: Ši internetinė parduotuvė priklauso mano žmonai, todėl nuoroda patalpinta grynai iš asmeninio intereso. Pasėkmės tau: užsakymo metu parašyk, kad atėjai iš svetainės **30dienu.lt**, tuomet gausi **20% nuolaidą** sportinėms liemenėlėms. Šis pasiūlymas galioja **tik sportinių liemenėlių užsakymams** iki **2015-12-31 d.** /DISKLEIMERIS
+Moterims ypaę svarbu turėti specialią liemenėlę sportui, kadangi ji ne tik perneša drėgmę tolyn nuo kūno, bet ir apspaudia krūtinę, saugo nuo patempimo traumų, neleidžia užsistovėti limfai. Moterims tai yra antras pirkinys po batelių.
 
 ### Atšvaitinė liemenė
 
@@ -40,7 +40,7 @@ Prožektorius praverčia bėgiojantiems tamsiu paros metu, ypač rudenį ir žie
 
 ### Šortai/kelnės
 
-Pradėjęs bėgioti aš maudavausi tiesiog ilgas sportines kelnes, arba maudymosi šortus. Maudymosi šortus tebenaudoju iki šiol, kadangi man jie pasiteisino - tinklinis pamušalas prilaiko viską kur reikia ir kaip reikia, bėgant ilgas distancijas netrina. Specialias bėgimo timpas įsigijau vėliau. Jū pliusai yra šie:
+Pradėjęs bėgioti aš maudavausi tiesiog ilgas sportines kelnes, arba maudymosi šortus. Maudymosi šortus tebenaudoju iki šiol, kadangi man jie pasiteisino - tinklinis pamušalas prilaiko viską kur reikia ir kaip reikia, bėgant ilgas distancijas netrina. Specialias bėgimo timpas įsigijau vėliau. Jų pliusai yra šie:
  
  - minimali kompresija blauzdų srityje, kas truputį padeda bėgant vidutinio nuotolio distancijas, tačiau kompresinių blauzdinių nepakeičia;
  - kišenė telefonui ar raktams (telefonu registruoju savo treniruotes);
